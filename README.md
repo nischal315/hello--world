@@ -1,1 +1,1 @@
-# Earth is our home.
+# Earth is our home sweet home.
